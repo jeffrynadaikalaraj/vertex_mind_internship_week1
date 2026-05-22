@@ -1,0 +1,1 @@
+# vertex_mind_internship_week1
